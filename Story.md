@@ -1,3 +1,1 @@
-Once upon a time there were two friends rabbit and the tortoise. the tortoise was the wise one whereas the rabbit was proud one.
-One day the tortoise and the rabbit fell into an argument. The rabbit said that he was the faster and the wiser one.. On the contrary the tortoise said being smart doesn't mean that you are the wiser one.
-The fox naned Casper was listenning to their conversation and suggested that there should be a race to see who was the faster & wiser one.
+Once upon a time there were two friends rabbit and the tortoise. The rabbit was kind hearted & wise. The tortoise was jealous of the rabbit's speed and wanted to prove everyone that he was the wiser one.
